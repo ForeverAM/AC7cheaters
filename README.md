@@ -290,7 +290,7 @@
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
 | .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+| 76561198839646162 | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
 | [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
 | Definex | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
