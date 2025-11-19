@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | ForeverAM | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Pretend&#32;to&#32;be&#32;me,&#32;LMAO,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Graybaloon | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| badf | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| badf | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 初心者パイロット | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
 | Spike | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
@@ -84,12 +84,12 @@
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
-|  | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
-|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-|  | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
-|  | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
-|  | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
+| Sergei Illich | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
+| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+| skyaora | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
+| wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+| Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
 | Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | 君がッ MODを外すまで殴るのをやめないッ！ | [76561199859940469](https://steamcommunity.com/profiles/76561199859940469) | testpilot.ace7 |  |
