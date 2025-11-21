@@ -9,6 +9,7 @@
 | Graybaloon | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | badf | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
 | Cinder | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | The road to heaven | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
@@ -88,7 +89,7 @@
 | Sergei Illich | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | skyaora | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-| 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
+|  | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
