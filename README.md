@@ -3,12 +3,12 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| 通りすがりの者です | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
-| Spike | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
-| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Pretend&#32;to&#32;be&#32;me,&#32;LMAO,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| Graybaloon | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| badf | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| 通りすがりの者です | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
+| Spike | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile,&#32;Pretend&#32;to&#32;be&#32;me,&#32;LMAO,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| Graybaloon | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| badf | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
 | Cinder | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
@@ -24,7 +24,7 @@
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
 | Ulomo Crack™ | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
-| Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) |  |  |
+| Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) | Johnny | Vile,&#32;Rebely's&#32;alternate&#32;account |
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
@@ -37,7 +37,7 @@
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
 | 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
 | Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
@@ -100,7 +100,7 @@
 | arino | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
 | xxxxxxa | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
+| 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Vile |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
 | Frost | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
@@ -244,7 +244,7 @@
 | Sky | [76561199497116434](https://steamcommunity.com/profiles/76561199497116434) |  |  |
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
 | 养生的鱼噢 | [76561198943227563](https://steamcommunity.com/profiles/76561198943227563) |  |  |
-| Mike Hunt | [76561199489780880](https://steamcommunity.com/profiles/76561199489780880) | Mike&#32;Hunt | Very&#32;bad |
+| Mike Hunt | [76561199489780880](https://steamcommunity.com/profiles/76561199489780880) | Mike&#32;Hunt | Vile |
 | CHINESE DRONE | [76561199247196637](https://steamcommunity.com/profiles/76561199247196637) | 奥西亚无人机 |  |
 | master1337 | [76561198107387037](https://steamcommunity.com/profiles/76561198107387037) |  |  |
 | 龙若琳 | [76561198955687025](https://steamcommunity.com/profiles/76561198955687025) |  |  |
@@ -290,7 +290,7 @@
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
-| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
+| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Vile |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
