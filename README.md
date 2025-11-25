@@ -136,7 +136,7 @@
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
-|  | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
+| Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
 | Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
 | f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
@@ -259,12 +259,12 @@
 | อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
-|  | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
-|  | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
-|  | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
-|  | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+| 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
+| spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
+| Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
+| 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
 | 大币币 | [76561199535817299](https://steamcommunity.com/profiles/76561199535817299) |  |  |
 | OnePunchMan69 | [76561198177980518](https://steamcommunity.com/profiles/76561198177980518) |  |  |
