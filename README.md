@@ -66,12 +66,12 @@
 | Agaion | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
 | Gabe Newell | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
 | 柴郡柴郡柴 | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
-| ArifxD | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
-| Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
-| Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
-| Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
-| Suri | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
-| THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
+|  | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
+|  | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
+|  | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
+|  | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
+|  | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
+|  | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
@@ -142,13 +142,13 @@
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
-|  | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
-|  | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
-|  | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
-|  | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
-|  | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
-|  | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
-|  | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
+| MOBIUS 1 GRIM REAPER | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
+| alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
+| YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
+| URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
+| POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
+| 情报员老秦 | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
+| cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
 | Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
