@@ -116,7 +116,7 @@
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
-| K-9 | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
+| Kei 9 | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
 | RDX_Neket | [76561199650989330](https://steamcommunity.com/profiles/76561199650989330) |  |  |
 | 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
@@ -278,19 +278,19 @@
 | 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
 | Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
-| Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
-| La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
-| alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
-| H_NGM_N | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
-| Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
-| PrayerAnswer | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
-| DagZede | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
+|  | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
+|  | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
+|  | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
+|  | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
+|  | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
+|  | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
+|  | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 | toonistiny | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
 | Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
 | 錦仙 . 優曇華院 `个力川 | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
-|  | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
+| Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
