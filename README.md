@@ -40,7 +40,7 @@
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
-| Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
+|  | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
@@ -138,12 +138,12 @@
 | Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
 | VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
-|  | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
-|  | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
-|  | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
-|  | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
-|  | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
-|  | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
+| RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
+| Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
+| powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
+| Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
+| Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
+| f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
