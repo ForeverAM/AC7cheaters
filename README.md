@@ -36,9 +36,9 @@
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | suzune_jp | [76561199528859685](https://steamcommunity.com/profiles/76561199528859685) |  |  |
-|  | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
-|  | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
+| SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
@@ -227,7 +227,7 @@
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
 | Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
 | DOOM爱吃螃蟹炒年糕 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
-| Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
+| Pr1me | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
