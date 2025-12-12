@@ -9,6 +9,8 @@
 | Thrust Vectoring F-18E/F | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
+| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+| Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
 | Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
 | X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
 | 枫花恋 | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
@@ -220,7 +222,6 @@
 | Arepa | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | Sazabi |  |
 | sfasijo | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | Leon | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
-| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
 | Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
