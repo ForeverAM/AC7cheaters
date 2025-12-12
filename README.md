@@ -144,7 +144,7 @@
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
 | Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
 | f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
-|  | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
+| Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
 | MOBIUS 1 GRIM REAPER | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
