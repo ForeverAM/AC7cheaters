@@ -60,12 +60,12 @@
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
-|  | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
-|  | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
-|  | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
-|  | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
-|  | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
-|  | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
+| Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
+| seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
+| Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
+| 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
+| Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
+| 残虹 | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
 | Sowrd in the cloud | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | I Try Then Rage | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
