@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Hen123 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| ホモ文社 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | tenatliz | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
 | MoonStar | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
@@ -293,7 +293,7 @@
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 | toonistiny | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
 | Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
-|  | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
+| 錦仙 . 優曇華院 `个力川 | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
