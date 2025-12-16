@@ -96,12 +96,12 @@
 | YoiYoiDzuhki | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
 | Unknown_1500 | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) | awayancedricedward |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
-|  | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
-|  | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
-|  | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
-|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-|  | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
+| Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
+| Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
+| Sergei Illich | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
+| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+| tom4gd | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
@@ -125,11 +125,11 @@
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
 | Kei-9 | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
 | RDX_Neket | [76561199650989330](https://steamcommunity.com/profiles/76561199650989330) |  |  |
-|  | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
-|  | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
-|  | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
-|  | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
-|  | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
+| 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
+| leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
+| Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
+| LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
+| 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
 | 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
 | chan963 | [76561198098057946](https://steamcommunity.com/profiles/76561198098057946) |  |  |
 | Tetochi | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
@@ -205,7 +205,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| KODE | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
+| 𝘋𝘶𝘣𝘩𝘦 Alpha | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
