@@ -8,6 +8,9 @@
 | MoonStar | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
+| maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
+| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
@@ -31,7 +34,6 @@
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
