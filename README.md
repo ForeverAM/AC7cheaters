@@ -240,12 +240,12 @@
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
-|  | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
-|  | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
-|  | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
-|  | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
-|  | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
-|  | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
+| Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
+| ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
+| minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
+| Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
+| Der Kaiser | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
+| rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
 | 20S | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
 | 蜡笔小蟹 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
@@ -266,11 +266,11 @@
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
-|  | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
-|  | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
-|  | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+| อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
+| doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
+| ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
 | spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
