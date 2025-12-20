@@ -190,13 +190,13 @@
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | conesama | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
-| Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| #春からソマ大 | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
-| ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
-| Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
-| Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
-| Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
-| Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
+|  | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
+|  | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
+|  | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
+|  | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
+|  | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
+|  | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
+|  | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
