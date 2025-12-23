@@ -210,7 +210,7 @@
 | caonimeigu | [76561199361973029](https://steamcommunity.com/profiles/76561199361973029) |  |  |
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
-| elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
+|  | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | 𝘋𝘶𝘣𝘩𝘦 Alpha | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
