@@ -6,9 +6,9 @@
 | ホモ文社 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | tenatliz | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
 | MoonStar | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
-| Johnny I don't play Ac7 no more | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| 丸子 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) |  |  |
+| P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
+| 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) |  |  |
 | 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
@@ -43,6 +43,7 @@
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
 | Ulomo Crack™ | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
+| Johnny I don't play Ac7 no more | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) | Johnny | Vile,&#32;Johnny's&#32;alternate&#32;account |
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
