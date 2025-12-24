@@ -101,7 +101,7 @@
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
-| YoiYoiDzuhki | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
+| Nicest of Nice Nature Simps | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
 | Unknown_1500 | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) | awayancedricedward |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
