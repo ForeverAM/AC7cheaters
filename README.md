@@ -178,7 +178,7 @@
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
-| ＥｍｚｙｙＮｏｔＭＺ | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
+| Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | SaibaMomoi | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
@@ -337,7 +337,7 @@
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | -ezC_BotRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
-| 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
+|  | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
 | Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
 | GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
