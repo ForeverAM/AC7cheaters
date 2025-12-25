@@ -337,7 +337,7 @@
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | -ezC_BotRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
-|  | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
+| 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
 | Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
 | GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
