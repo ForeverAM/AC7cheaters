@@ -3,29 +3,29 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| I don't play Ac7 no more | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| tenatliz | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
-| MoonStar | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+|  | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+|  | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
+|  | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
-| 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
+|  | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
 | 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
-| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
-| maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
+|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+|  | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
-| zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
-| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
-| 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
-| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
-| ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
-| WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
-| Xperimental | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
-| Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
-| Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
-| X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
+|  | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
+|  | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
+|  | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
+|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+|  | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
+|  | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
+|  | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
+|  | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
+|  | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
+|  | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
+|  | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
 | 枫花恋 | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
 | windancer350 | [76561199024658123](https://steamcommunity.com/profiles/76561199024658123) |  |  |
 | mahditj7 | [76561198888924284](https://steamcommunity.com/profiles/76561198888924284) |  |  |
