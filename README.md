@@ -39,7 +39,7 @@
 | Sicario_Talos | [76561198862127761](https://steamcommunity.com/profiles/76561198862127761) |  |  |
 | Lisiu | [76561198278034252](https://steamcommunity.com/profiles/76561198278034252) |  |  |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
-| Cinder | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
+| Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
