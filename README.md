@@ -8,6 +8,8 @@
 | tenatliz | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | akari | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
+| Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
 | 周天不打烊 | [76561198429237696](https://steamcommunity.com/profiles/76561198429237696) |  |  |
 | UNKNOW | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
@@ -78,13 +80,13 @@
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
-|  | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
-|  | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
-|  | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
-|  | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
-|  | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
-|  | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
-|  | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
+| 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
+| Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
+| 残虹 | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
+| Sowrd in the cloud | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
+| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
+| I Try Then Rage | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
+| heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | Zorin | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
