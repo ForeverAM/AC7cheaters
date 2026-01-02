@@ -7,10 +7,11 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | a;:wpsoiegj | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Ruito | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
+| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 赵小雷 | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
 | -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
 | Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
@@ -44,6 +45,7 @@
 | Sicario_Talos | [76561198862127761](https://steamcommunity.com/profiles/76561198862127761) |  |  |
 | Lisiu | [76561198278034252](https://steamcommunity.com/profiles/76561198278034252) |  |  |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
+| LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
@@ -59,9 +61,7 @@
 | Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) | Johnny | Vile |
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
-| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | suzune_jp | [76561199528859685](https://steamcommunity.com/profiles/76561199528859685) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
