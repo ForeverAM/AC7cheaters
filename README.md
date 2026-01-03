@@ -214,14 +214,14 @@
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
-|  | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
+| 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
 | 方塊酥 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | 一位大团仔 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) | shenghua3949 |  |
 | Lunar | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
 | caonimeigu | [76561199361973029](https://steamcommunity.com/profiles/76561199361973029) |  |  |
-|  | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
+| Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
-|  | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
+| elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | Señor Battlefield | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
@@ -280,7 +280,7 @@
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
-|  | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
+| อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
@@ -300,16 +300,16 @@
 | Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
 | Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
-|  | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
+| La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | H_NGM_N | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
 | Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
-|  | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
-|  | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
+| PrayerAnswer | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
+| DagZede | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 | toonistiny | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
 | Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
-|  | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
+| 錦仙 . 優曇華院 `个力川 | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
