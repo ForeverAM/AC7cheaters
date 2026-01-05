@@ -48,12 +48,12 @@
 | Lisiu | [76561198278034252](https://steamcommunity.com/profiles/76561198278034252) |  |  |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
-| Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
-| AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
-| king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
-| Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-| Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
+|  | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
+|  | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
+|  | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+|  | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
+|  | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
+|  | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
