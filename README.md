@@ -217,7 +217,7 @@
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
-| 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
+|  | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
 | 方塊酥 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | 一位大团仔 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) | shenghua3949 |  |
 | Lunar | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
