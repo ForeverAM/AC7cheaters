@@ -167,12 +167,12 @@
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
-|  | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
-|  | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
-|  | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
-|  | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
-|  | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
-|  | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
+| Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
+| Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
+| f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
+| Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
+| 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
+| Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
 | MOBIUS 1 GRIM REAPER | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
 | YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
