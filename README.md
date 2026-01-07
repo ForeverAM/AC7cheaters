@@ -34,12 +34,12 @@
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
-| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
-| 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
-| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
-| ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
+|  | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
+|  | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
+|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+|  | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
+|  | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
 | Z-E-R-O | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
