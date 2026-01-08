@@ -8,7 +8,7 @@
 | Zyen | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 虎徹 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
-| Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) |  |  |
+| Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
 | LIL. | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) |  |  |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
@@ -135,7 +135,7 @@
 | xxxxxxa | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Vile |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
-| Frost | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
+|  | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
 | のない | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
