@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | no internet in my country | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
-| 伝説のパチンカー | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| Zyen | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | むらちゃんだぞ | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | archange | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) |  |  |
@@ -25,7 +25,7 @@
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
 | ☢ПøŽϋŦΰ฿पÛķ®☢ | [76561198820024165](https://steamcommunity.com/profiles/76561198820024165) |  |  |
 | MarkMach Overhead | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
-| Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
+|  | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
@@ -66,14 +66,14 @@
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
 | suzune_jp | [76561199528859685](https://steamcommunity.com/profiles/76561199528859685) |  |  |
-| 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
+|  | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
 | 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
 | Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
@@ -95,7 +95,7 @@
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | Zorin | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
-| Agaion | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
+|  | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
 | Gabe Newell | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
 | 柴郡柴郡柴 | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
 | ArifxD | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
@@ -316,7 +316,7 @@
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
-|  | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
+| 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Vile |
@@ -341,7 +341,7 @@
 | ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
 | 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
 | &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
-|  | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
+| 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 | GUOZI ! | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
