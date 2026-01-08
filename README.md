@@ -14,7 +14,7 @@
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 赵小雷 | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
