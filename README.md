@@ -8,7 +8,9 @@
 | Zyen | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 虎徹 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
+| IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Archange | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
+| 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
 | LIL. | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) |  |  |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
@@ -29,12 +31,10 @@
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
-| 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
 | 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
-| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
