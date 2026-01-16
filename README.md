@@ -7,6 +7,7 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Zyen | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Suies | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
@@ -50,7 +51,6 @@
 | Sicario_Talos | [76561198862127761](https://steamcommunity.com/profiles/76561198862127761) |  |  |
 | Lisiu | [76561198278034252](https://steamcommunity.com/profiles/76561198278034252) |  |  |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
-| LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
