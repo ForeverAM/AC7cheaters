@@ -11,7 +11,7 @@
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
 | Mr. U | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
-| Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. | Stealing&#32;someone&#32;else's&#32;name,&#32;pay&#32;attention&#32;to&#32;distinguishing |
+| Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. | Stealing&#32;someone&#32;else's&#32;name |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
