@@ -8,6 +8,7 @@
 | Zyen | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 虎生 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
+| Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
 | Mr.PLS-R | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
