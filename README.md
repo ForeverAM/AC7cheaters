@@ -9,7 +9,7 @@
 | Zyein back | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
-| Mr. U | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) |  |  |
+| Mr.PLS-R | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. | Stealing&#32;someone&#32;else's&#32;name |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
