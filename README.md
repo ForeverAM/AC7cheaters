@@ -8,6 +8,7 @@
 | ニャーゴ先生 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 349785610922 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
+| 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
