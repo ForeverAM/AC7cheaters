@@ -12,7 +12,7 @@
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-| MF | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) | 跑路商人 |  |
+| F-PLASMA | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) | 跑路商人 |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
