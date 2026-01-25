@@ -8,6 +8,7 @@
 | ニャーゴ先生 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 349785610922 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
+| Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  |  |
 | 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
@@ -49,7 +50,7 @@
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
-| Blutrausch1987 | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
+| German Legacy | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
 | X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
 | 枫花恋 | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
