@@ -42,12 +42,12 @@
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
 | 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
-| maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
-| 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
-| zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
-| 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
-| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+|  | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
+|  | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
+|  | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
+|  | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
+|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
@@ -81,18 +81,18 @@
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
-| 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-| i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
-| SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
-|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
-|  | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
-|  | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
-|  | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
-|  | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
-|  | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
+|  | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
+|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+|  | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
+| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+| Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
+| !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
+| Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
+| 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
+| seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
 | 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
 | Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
@@ -243,7 +243,7 @@
 | Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
-| Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
+|  | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
 | YuuChan | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
@@ -306,12 +306,12 @@
 | Storm | [76561198917360011](https://steamcommunity.com/profiles/76561198917360011) |  |  |
 | asennad | [76561199465912684](https://steamcommunity.com/profiles/76561199465912684) |  |  |
 | Stanstillplays | [76561198429941928](https://steamcommunity.com/profiles/76561198429941928) |  |  |
-|  | [76561198076214633](https://steamcommunity.com/profiles/76561198076214633) |  |  |
-|  | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
-|  | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
-|  | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
-|  | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
-|  | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
+| ysamtme | [76561198076214633](https://steamcommunity.com/profiles/76561198076214633) |  |  |
+| 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
+| Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
+| GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
+| Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
+| La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | PΛRΛLLΛX | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
 | Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
