@@ -49,7 +49,7 @@
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
-|  | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
+| ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
 | German Legacy | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
