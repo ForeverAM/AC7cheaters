@@ -69,14 +69,14 @@
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
-| Ulomo Crack™ | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
+|  | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
 | Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) | Johnny | Vile |
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
 | Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
 | suzune_jp | [76561199528859685](https://steamcommunity.com/profiles/76561199528859685) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
-| SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
+|  | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
