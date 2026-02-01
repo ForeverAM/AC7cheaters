@@ -327,7 +327,7 @@
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
-| JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
+|  | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Vile |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
