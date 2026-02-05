@@ -165,7 +165,7 @@
 | 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
 | 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
 | chan963 | [76561198098057946](https://steamcommunity.com/profiles/76561198098057946) |  |  |
-| Tetochi | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
+| ProxyNot | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Tornado76 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
 | Doraemonlah! | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
