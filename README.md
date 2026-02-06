@@ -9,6 +9,7 @@
 | 283907541-201 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Vile |
 | 暴食恶魔埃尔芬 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
+| MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
 | EFJ FiveNightsatEpstein'sIsland | [76561198257535446](https://steamcommunity.com/profiles/76561198257535446) | Microsoft&#32;Word |  |
 | AUMO | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
