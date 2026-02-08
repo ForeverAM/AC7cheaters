@@ -11,7 +11,6 @@
 | 暴食恶魔埃尔芬 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
 | MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
-| EFJ FiveNightsatEpstein'sIsland | [76561198257535446](https://steamcommunity.com/profiles/76561198257535446) | Microsoft&#32;Word |  |
 | AUMO | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
@@ -20,7 +19,6 @@
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-| F-PLASMA | [76561199543657289](https://steamcommunity.com/profiles/76561199543657289) | 跑路商人 |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
