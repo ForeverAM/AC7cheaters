@@ -15,12 +15,12 @@
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  |  |
-|  | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
-|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
-|  | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
-|  | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-|  | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
-|  | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
+| 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
+| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+| Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
+| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
+| RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
+| Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. |  |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
