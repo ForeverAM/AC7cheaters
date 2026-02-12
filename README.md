@@ -15,12 +15,12 @@
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  |  |
-| 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
-| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
-| Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
-| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-| RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
-| Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
+|  | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
+|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+|  | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
+|  | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
+|  | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
+|  | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. |  |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
@@ -292,12 +292,12 @@
 | ☬ONA DEĞİL BUNA SAR☬ | [76561199401367551](https://steamcommunity.com/profiles/76561199401367551) |  |  |
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
-|  | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
-|  | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
-|  | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
-|  | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+| 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
+| อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
+| doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
+| ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
 | spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
