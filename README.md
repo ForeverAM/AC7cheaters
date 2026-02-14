@@ -8,8 +8,8 @@
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 74462784 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
-| 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  |  |
 | 暴食恶魔埃尔芬 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
 | MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
