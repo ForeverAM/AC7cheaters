@@ -134,8 +134,8 @@
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
 | Sergei Illich | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
-| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-| ewahoo | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
@@ -363,5 +363,5 @@
 | -ezC_BotRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
-| Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
-| GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
+|  | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
+|  | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
