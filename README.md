@@ -3,12 +3,13 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| no internet in my country | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 74462784 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
+| AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+|  | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
 | 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
@@ -25,6 +26,7 @@
 | Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | Microsoft Word | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. |  |
+| no internet in my country | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
@@ -66,7 +68,6 @@
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
 | Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
-| AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
@@ -134,8 +135,8 @@
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
 | Sergei Illich | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
-|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+| ewahoo | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
@@ -363,5 +364,5 @@
 | -ezC_BotRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
-|  | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
-|  | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
+| Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
+| GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
