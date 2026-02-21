@@ -8,8 +8,9 @@
 | SHIN | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
+| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
-| ꧁Cathy꧂ chitera :D | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) |  |  |
+| ꧁Cathy꧂ chitera :D | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
 | 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
@@ -53,7 +54,6 @@
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
 | 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
-| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
