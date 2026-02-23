@@ -34,12 +34,12 @@
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
 | 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-| 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
-| 赵小雷 | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
-| -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
-| Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
+|  | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+|  | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
+|  | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+|  | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
+|  | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
+|  | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
 | 周天不打烊 | [76561198429237696](https://steamcommunity.com/profiles/76561198429237696) |  |  |
 | UNKNOWN | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
