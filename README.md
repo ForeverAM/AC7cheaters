@@ -46,13 +46,13 @@
 | ☢ПøŽϋŦΰ฿पÛķ®☢ | [76561198820024165](https://steamcommunity.com/profiles/76561198820024165) |  |  |
 | MarkMach | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
 | Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
-| 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
-| xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
-| P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
-| 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
-| maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
-| 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
-| zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
+|  | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
+|  | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
+|  | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
+|  | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
+|  | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
+|  | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
+|  | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
 | 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
@@ -109,12 +109,12 @@
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | Zorin | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
-| Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
-| Agaion | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
-| Gabe Newell | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
-| 柴郡柴郡柴 | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
-| ArifxD | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
-| Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
+|  | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
+|  | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
+|  | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
+|  | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
+|  | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
+|  | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
 | Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
 | Suri | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
