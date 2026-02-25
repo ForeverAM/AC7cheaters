@@ -88,15 +88,15 @@
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
-|  | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
-|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
-|  | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
-|  | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
-|  | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
+| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+| SHIMADA | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+| SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
+| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+| Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
+| !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
+| Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
 | seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
