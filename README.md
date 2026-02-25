@@ -239,7 +239,7 @@
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | &quot; G u n s &quot; | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
-| el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
+|  | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
