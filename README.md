@@ -44,7 +44,7 @@
 | UNKNOWN | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
 | ☢ПøŽϋŦΰ฿पÛķ®☢ | [76561198820024165](https://steamcommunity.com/profiles/76561198820024165) |  |  |
-| MarkMach | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
+|  | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
 | Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
@@ -239,7 +239,7 @@
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | &quot; G u n s &quot; | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
-|  | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
+| el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
