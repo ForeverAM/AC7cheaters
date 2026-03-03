@@ -8,6 +8,7 @@
 | TheNewBie | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
+| IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | ꧁Cathy꧂ chitera :D | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
