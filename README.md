@@ -72,12 +72,12 @@
 | Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
-| Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-| Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
-| zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
-| SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
-| pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
-| Ulomo Crack™ | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
+|  | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
+|  | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
+|  | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
+|  | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
+|  | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
+|  | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) | maskriderx00 |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
 | Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) | Johnny | Vile |
 | 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
@@ -89,15 +89,15 @@
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
-| 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-| SHIMADA | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
-| SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
-| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
-| Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
-| !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
+|  | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
+|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Vile,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+|  | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
+|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+|  | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
+|  | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
 | seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
