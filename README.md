@@ -61,7 +61,7 @@
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
-| Tatiana | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
+| Seth | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ | Frequent&#32;name&#32;changes |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
 | X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
 | 枫花恋 | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
@@ -207,7 +207,7 @@
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
-| Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
+| Lucky Smoke | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | SaibaMomoi | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
