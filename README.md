@@ -57,7 +57,7 @@
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
 | 优质战士王博海 | [76561198353851649](https://steamcommunity.com/profiles/76561198353851649) |  |  |
-| 𝖱𝖾𝗇𝖺 | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+| Rena | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | MG_Cozmic | [76561198160607905](https://steamcommunity.com/profiles/76561198160607905) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
