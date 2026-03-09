@@ -74,7 +74,7 @@
 | Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-|  | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
+| Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
@@ -241,7 +241,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| &quot; G u n s &quot; | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
+| El Benja | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
