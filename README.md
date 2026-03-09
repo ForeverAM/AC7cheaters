@@ -17,15 +17,15 @@
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
 | skyaora | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-| 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
-| MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
-| 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
-| AUMO | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
-| ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
-| Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
-| 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
-| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
-| Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
+|  | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
+|  | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
+|  | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
+|  | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
+|  | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
+|  | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
+|  | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
+|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
+|  | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
