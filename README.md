@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| TheNewBie | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| あかり | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
@@ -232,7 +232,7 @@
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
-| 不笨狐狸 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
+| 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
 | 方塊酥 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | 一位大团仔 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) | shenghua3949 |  |
