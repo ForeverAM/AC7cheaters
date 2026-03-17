@@ -3,24 +3,24 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-|  | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
-|  | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-|  | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
-|  | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
-|  | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
-|  | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
-|  | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
-|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-|  | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
-|  | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
-|  | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
-|  | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
-|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-|  | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
-|  | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
-|  | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
-|  | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
+| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| Shiki | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
+| Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
+| sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
+| IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
+| This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+| AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| ꧁Cathy꧂ chitera :D | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
+| wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+| 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
+| skyaora | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
+| MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
+| 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
+| AUMO | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
