@@ -260,7 +260,7 @@
 | Leon | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
-| Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
+|  | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
 | Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
 | DOOM爱吃螃蟹炒年糕 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
