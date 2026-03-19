@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| ７３波絵 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| FerFerrariX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
@@ -52,7 +52,7 @@
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
-| 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
+| 炭烧 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
@@ -112,7 +112,7 @@
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | Zorin | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
-| Ares | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
+|  | [76561199792856187](https://steamcommunity.com/profiles/76561199792856187) |  |  |
 | Gabe Newell | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
 | 柴郡柴郡柴 | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
 | ArifxD | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
