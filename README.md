@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| Shiki | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| 獅子神 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
