@@ -116,7 +116,7 @@
 | Gabe Newell | [76561199531085713](https://steamcommunity.com/profiles/76561199531085713) |  |  |
 | 柴郡柴郡柴 | [76561198810026504](https://steamcommunity.com/profiles/76561198810026504) |  |  |
 | ArifxD | [76561199789168958](https://steamcommunity.com/profiles/76561199789168958) |  |  |
-| Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
+| Zato | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
 | Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
 | Suri | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
