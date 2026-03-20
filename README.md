@@ -52,7 +52,6 @@
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
 | xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
-| 舞竹 | [76561199796835724](https://steamcommunity.com/profiles/76561199796835724) |  |  |
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
 | zait_sev | [76561198956787387](https://steamcommunity.com/profiles/76561198956787387) |  |  |
