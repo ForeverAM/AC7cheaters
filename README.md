@@ -69,7 +69,7 @@
 | Lisiu | [76561198278034252](https://steamcommunity.com/profiles/76561198278034252) |  |  |
 | Yuk1na | [76561198364583292](https://steamcommunity.com/profiles/76561198364583292) |  |  |
 | Kel | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
-|  | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
+| Said | [76561198253105624](https://steamcommunity.com/profiles/76561198253105624) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
