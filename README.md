@@ -319,7 +319,7 @@
 | Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
-| PΛRΛLLΛX | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
+|  | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
 | Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
 | PrayerAnswer | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
 | DagZede | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
