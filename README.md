@@ -6,7 +6,7 @@
 | Johnny (Nobody on Discord) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 自転道　修理なら　HoTcy | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
@@ -171,7 +171,7 @@
 | ProxyNot | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Tornado76 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
-| Shinchan | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
+| Fikry | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
