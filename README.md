@@ -7,6 +7,7 @@
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 自転道　修理なら　HoTcy | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | Ace Zero | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
