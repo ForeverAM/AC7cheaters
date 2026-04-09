@@ -7,6 +7,7 @@
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | FerFerrariX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
