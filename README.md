@@ -13,7 +13,7 @@
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  |  |
-| 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
+|  | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 |  | [76561198741363120](https://steamcommunity.com/profiles/76561198741363120) |  |  |
 | sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
@@ -45,7 +45,7 @@
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+|  | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 赵小雷 | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
 | -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
 | Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
