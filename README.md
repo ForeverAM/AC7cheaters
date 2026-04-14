@@ -7,6 +7,9 @@
 | Nuawelty | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | FerFerrariX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
+| barakka82 | [76561198365489355](https://steamcommunity.com/profiles/76561198365489355) |  |  |
+| Random4057 | [76561199553781796](https://steamcommunity.com/profiles/76561199553781796) |  |  |
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  |  |
@@ -23,7 +26,6 @@
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
 | MALIK-2025 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
-| 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
 | AUMO | [76561199820944156](https://steamcommunity.com/profiles/76561199820944156) |  |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
