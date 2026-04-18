@@ -22,7 +22,7 @@
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
-| ꧁Cathy꧂ | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
+| Позывной: «Cathy» | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
 | 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
