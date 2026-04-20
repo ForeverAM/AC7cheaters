@@ -10,7 +10,6 @@
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | MonOnoM | [76561198784815890](https://steamcommunity.com/profiles/76561198784815890) |  |  |
-| 灼原之火 | [76561199805129298](https://steamcommunity.com/profiles/76561199805129298) |  |  |
 | barakka82 | [76561198365489355](https://steamcommunity.com/profiles/76561198365489355) |  |  |
 | Jonh Ace Combat | [76561199553781796](https://steamcommunity.com/profiles/76561199553781796) |  |  |
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
