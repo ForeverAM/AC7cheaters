@@ -8,7 +8,7 @@
 | spike☆彡 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
-| Sum Ting Wong | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) |  |  |
+| CHINESE DRONE | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | MonOnoM | [76561198784815890](https://steamcommunity.com/profiles/76561198784815890) |  |  |
