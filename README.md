@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| 凶猛的战士 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | CHINESE&#32;DRONE | Vile,&#32;Frequent&#32;name&#32;changes |
+| Sniper | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | CHINESE&#32;DRONE | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny (Nobody on Discord) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | PoppyLewisX | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | zero X | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
