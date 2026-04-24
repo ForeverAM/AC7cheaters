@@ -5,10 +5,10 @@
 | ------ | ------ | ------ | ------ |
 | Johnny (Nobody on Discord) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | TEKKEN | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| cERBERUS | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| I like fighter jet | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| 凶猛的战士 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | CHINESE&#32;DRONE | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
-| Sniper | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | MonOnoM | [76561198784815890](https://steamcommunity.com/profiles/76561198784815890) |  |  |
