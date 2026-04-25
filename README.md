@@ -3,11 +3,12 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Staeni92 Youtube (#1 ACE) | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | CHINESE&#32;DRONE | Vile,&#32;Frequent&#32;name&#32;changes |
+| Staeni92 Youtube (#1 ACE) | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny (Nobody on Discord) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | PoppyLewisX | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | zero X | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
+| 76561198712338676 | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
@@ -39,7 +40,7 @@
 | Adler | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | [VERIDICAL] | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. |  |
-| Fabian | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| Tarnoc | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | LokLo | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
@@ -294,7 +295,7 @@
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
 | 养生的鱼噢 | [76561198943227563](https://steamcommunity.com/profiles/76561198943227563) |  |  |
 | Mike Hunt | [76561199489780880](https://steamcommunity.com/profiles/76561199489780880) | Mike&#32;Hunt | Vile |
-| CHINESE DRONE | [76561199247196637](https://steamcommunity.com/profiles/76561199247196637) | Staeni92&#32;Youtube |  |
+| CHINESE DRONE | [76561199247196637](https://steamcommunity.com/profiles/76561199247196637) | Staeni92 | Vile |
 | master1337 | [76561198107387037](https://steamcommunity.com/profiles/76561198107387037) |  |  |
 | 龙若琳 | [76561198955687025](https://steamcommunity.com/profiles/76561198955687025) |  |  |
 | 밍창이 | [76561198145619796](https://steamcommunity.com/profiles/76561198145619796) |  |  |
@@ -339,7 +340,7 @@
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
-| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Vile |
+| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) | Staeni92 | Vile |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
