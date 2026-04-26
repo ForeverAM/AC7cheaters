@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| El Chupacabra | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
+| Captain Bob Adams | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | PoppyLewisX | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | zero X | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
