@@ -7,6 +7,7 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | PoppyLewisX | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | zero X | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 76561198712338676 | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
@@ -33,7 +34,6 @@
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) |  |  |
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
-| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
