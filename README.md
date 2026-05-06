@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| 1v1 me, trash. Or scared? | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
+| 我会让你自杀 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | BlueNeverDie | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 電気工事屋 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
