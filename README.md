@@ -41,7 +41,7 @@
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
 | Lil. | [76561198823222741](https://steamcommunity.com/profiles/76561198823222741) | LIL. |  |
 | marcero | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| Hw74MefaDa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| daikwkdaw | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Vile,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
 | 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
@@ -71,7 +71,7 @@
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
 | X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
-| 枫花恋 | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
+| Kanghyewon | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
 | Havel | [76561199024658123](https://steamcommunity.com/profiles/76561199024658123) |  |  |
 | mahditj7 | [76561198888924284](https://steamcommunity.com/profiles/76561198888924284) |  |  |
 | Sicario_Talos | [76561198862127761](https://steamcommunity.com/profiles/76561198862127761) |  |  |
