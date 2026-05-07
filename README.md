@@ -7,6 +7,8 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | BlueNeverDie | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | CandyMint | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| CandyMint | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) |  |  |
+| Nameless | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | 76561198712338676 | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
@@ -226,7 +228,6 @@
 | Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | HASAUEI | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
-| Nameless | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | conesama | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
