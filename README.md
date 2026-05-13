@@ -7,6 +7,8 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | BlueNeverDie | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | CandyMint | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| RivaTesu | [76561198108725965](https://steamcommunity.com/profiles/76561198108725965) |  | Vile |
+| Megatronus | [76561198261946867](https://steamcommunity.com/profiles/76561198261946867) |  |  |
 | Nameless | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
@@ -214,7 +216,7 @@
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Vile |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
-| Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
+| Uncle Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | SaibaMomoi | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
