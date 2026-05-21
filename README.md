@@ -16,7 +16,7 @@
 | Nameless | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
-| GI | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
+| GUN PRO | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
@@ -252,7 +252,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| Anti watona | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
+| Quico | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
