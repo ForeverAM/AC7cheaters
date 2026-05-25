@@ -6,7 +6,7 @@
 | 76561198711292002 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | ZERO (JP) | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | yu-(JP) | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Johnny (not cheating today) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
 | Позывной: «Cathy» | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
@@ -222,7 +222,7 @@
 | Uncle Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) | Emzyy |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
-| SaibaMomoi | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
+| 才羽桃井 | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
 | Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
