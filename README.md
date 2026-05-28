@@ -114,7 +114,7 @@
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
-| seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
+| 76561199240386234 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
 | 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
 | Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
@@ -246,7 +246,7 @@
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Vile |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
-| 方塊酥 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
+|  | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | 一位大团仔 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) | shenghua3949 |  |
 | Lunar | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
 | caonimeigu | [76561199361973029](https://steamcommunity.com/profiles/76561199361973029) |  |  |
