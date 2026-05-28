@@ -6,7 +6,7 @@
 | 76561198711292002 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | ZERO (JP) | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | yu-(JP) | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| Johnny (not cheating today) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
 | Позывной: «Cathy» | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
