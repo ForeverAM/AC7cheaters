@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | 76561198711292002 | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
-| 株式会社アシスト | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| JY（JP） | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | PoppyLewisX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
@@ -17,7 +17,7 @@
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
 | Obtaining air superiority | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
-| hunting | [76561198702314739](https://steamcommunity.com/profiles/76561198702314739) |  |  |
+| hows your feeling | [76561198702314739](https://steamcommunity.com/profiles/76561198702314739) |  |  |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
