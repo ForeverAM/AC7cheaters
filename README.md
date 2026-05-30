@@ -7,6 +7,7 @@
 | JY（JP） | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | PoppyLewisX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Viiolet | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
 | Позывной: «Cathy» | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
@@ -16,7 +17,7 @@
 | Nameless | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  | Vile |
 | I'LL MELT YOU | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) | Morgan | Vile |
-| Obtaining air superiority | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
+| Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 |  |
 | i drive | [76561198702314739](https://steamcommunity.com/profiles/76561198702314739) |  |  |
 | Mood | [76561199824528282](https://steamcommunity.com/profiles/76561199824528282) |  |  |
 | MAS_2005 | [76561199863587704](https://steamcommunity.com/profiles/76561199863587704) |  |  |
