@@ -11,7 +11,7 @@
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Viiolet | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
-| Позывной: «Cathy» | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
+| ZASLON 1 — CAPT Cathy &quot;Whisper | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
 | Shockwave819 | [76561199144506855](https://steamcommunity.com/profiles/76561199144506855) |  |  |
 | RivaTesu | [76561198108725965](https://steamcommunity.com/profiles/76561198108725965) |  | Vile |
@@ -61,7 +61,7 @@
 | -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
 | Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
 | 周天不打烊 | [76561198429237696](https://steamcommunity.com/profiles/76561198429237696) |  |  |
-| UNKNOWN | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
+| Espèce d'idiot. | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
 | ☢ПøŽϋŦΰ฿पÛķ®☢ | [76561198820024165](https://steamcommunity.com/profiles/76561198820024165) |  |  |
 | MarkMach | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
