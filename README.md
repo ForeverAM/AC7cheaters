@@ -269,7 +269,7 @@
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
 | DJMAX | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
-| Arepa | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | Sazabi |  |
+| Panda | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | Sazabi |  |
 | sfasijo | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | Leon | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
