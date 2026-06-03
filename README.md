@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
-| JY（JP） | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| TheNewBie | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | PoppyLewisX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
@@ -207,16 +207,16 @@
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
 | YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
 | URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
-| POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
-| Alpha-3 | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
-| cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
-| Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
-| *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
-| Cilántropo | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
-| alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
-| 宮本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
-| bury the light | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
-| 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
+|  | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
+|  | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
+|  | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
+|  | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
+|  | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
+|  | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
+|  | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
+|  | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
+|  | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
+|  | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
 | zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Vile |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
