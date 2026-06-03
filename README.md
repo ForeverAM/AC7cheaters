@@ -143,7 +143,7 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Nohpyt-SoremephE | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
-| nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
+|  | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
@@ -285,7 +285,7 @@
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
-|  | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
+| Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
 | minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
 | Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
