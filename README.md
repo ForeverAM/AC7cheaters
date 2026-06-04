@@ -4,8 +4,8 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
-| TheNewBie | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| PoppyLewisX | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| A Game | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| PoppyLewis | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Viiolet | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
@@ -143,7 +143,7 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Nohpyt-SoremephE | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
-|  | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
+| nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
