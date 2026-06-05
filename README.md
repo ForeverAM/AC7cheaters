@@ -25,7 +25,7 @@
 | genrall | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | MonOnoM | [76561198784815890](https://steamcommunity.com/profiles/76561198784815890) |  |  |
 | barakka82 | [76561198365489355](https://steamcommunity.com/profiles/76561198365489355) |  |  |
-| Jonh Ace Combat | [76561199553781796](https://steamcommunity.com/profiles/76561199553781796) | Random4057 |  |
+| Random4057 | [76561199553781796](https://steamcommunity.com/profiles/76561199553781796) | Random4057 |  |
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  |  |
