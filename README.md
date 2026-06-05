@@ -7,6 +7,7 @@
 | A Game | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Ryoさん | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Shiro26 | [76561198443498421](https://steamcommunity.com/profiles/76561198443498421) |  |  |
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Viiolet | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
