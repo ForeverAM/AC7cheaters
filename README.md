@@ -332,7 +332,7 @@
 | 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
 | Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
-| Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
+|  | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | PΛRΛLLΛX | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
