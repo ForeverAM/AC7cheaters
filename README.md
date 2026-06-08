@@ -186,7 +186,7 @@
 | 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
 | chan963 | [76561198098057946](https://steamcommunity.com/profiles/76561198098057946) |  |  |
 | ProxyNot | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
-|  | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
+| aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Remsua | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
 | Fikry | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
@@ -271,7 +271,7 @@
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
 | DJMAX | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
-| Panda | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | Sazabi |  |
+|  | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | Sazabi |  |
 | sfasijo | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | Leon | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
