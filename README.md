@@ -139,7 +139,7 @@
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
 | Suri | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
 | THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
-|  | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
+| xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | Blaze | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
@@ -364,7 +364,7 @@
 | Kaelthos | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
-|  | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
+| 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
