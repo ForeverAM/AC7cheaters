@@ -36,7 +36,7 @@
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
-|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+| This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
@@ -65,7 +65,7 @@
 | -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
 | Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
 | 周天不打烊 | [76561198429237696](https://steamcommunity.com/profiles/76561198429237696) |  |  |
-| Je t'aime. | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
+| Grand méchant. | [76561199531095365](https://steamcommunity.com/profiles/76561199531095365) |  |  |
 | kamo | [76561199482723288](https://steamcommunity.com/profiles/76561199482723288) |  |  |
 | ☢ПøŽϋŦΰ฿पÛķ®☢ | [76561198820024165](https://steamcommunity.com/profiles/76561198820024165) |  |  |
 | MarkMach | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
@@ -139,7 +139,7 @@
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
 | Suri | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
 | THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
-| xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
+|  | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | Blaze | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
@@ -364,7 +364,7 @@
 | Kaelthos | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
-| 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
+|  | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
