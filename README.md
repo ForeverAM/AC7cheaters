@@ -8,6 +8,7 @@
 | Ryo | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Johnny is not cheating | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
+| Dagger-1 | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Shiro26 | [76561198443498421](https://steamcommunity.com/profiles/76561198443498421) |  |  |
