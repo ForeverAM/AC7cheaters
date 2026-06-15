@@ -84,7 +84,7 @@
 | WARPIG_NT | [76561198060569991](https://steamcommunity.com/profiles/76561198060569991) |  |  |
 | Hungry_Scav | [76561198868094405](https://steamcommunity.com/profiles/76561198868094405) |  |  |
 | X.Neo4060 | [76561199456120701](https://steamcommunity.com/profiles/76561199456120701) |  |  |
-| Kanghyewon | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
+| W0nderful | [76561199380440489](https://steamcommunity.com/profiles/76561199380440489) |  |  |
 | Havel | [76561199024658123](https://steamcommunity.com/profiles/76561199024658123) |  |  |
 | mahditj7 | [76561198888924284](https://steamcommunity.com/profiles/76561198888924284) |  |  |
 | Sicario_Talos | [76561198862127761](https://steamcommunity.com/profiles/76561198862127761) |  |  |
