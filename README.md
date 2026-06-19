@@ -58,7 +58,7 @@
 | IIIIIIIIIIIII | [76561198775925923](https://steamcommunity.com/profiles/76561198775925923) |  |  |
 | Mister X | [76561199516735315](https://steamcommunity.com/profiles/76561199516735315) | dutchlion |  |
 | 糖泡泡 | [76561199077281851](https://steamcommunity.com/profiles/76561199077281851) | 丸子 |  |
-| vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
+|  | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
