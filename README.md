@@ -39,7 +39,7 @@
 | CIA | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
-| This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
