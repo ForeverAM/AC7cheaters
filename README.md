@@ -6,8 +6,9 @@
 | Staeni92 Youtube | [76561198704815770](https://steamcommunity.com/profiles/76561198704815770) | Staeni92 | Vile |
 | —“1…‘’ | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Monariza | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| Johnny 22/Ares | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
+| X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
+| Johnny 22/Ares | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Dagger-1 | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
@@ -39,7 +40,7 @@
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
-| wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+|  | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | 나정용원아니다 | [76561198443315232](https://steamcommunity.com/profiles/76561198443315232) |  |  |
 | 漆黑のEternal☆射手 | [76561199100106718](https://steamcommunity.com/profiles/76561199100106718) | 芽芽芽芽门 |  |
 | Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
