@@ -9,7 +9,7 @@
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
 | X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
-| Johnny 22/Ares | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Kamikaze_Penguin | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
