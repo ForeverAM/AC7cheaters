@@ -19,7 +19,7 @@
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Katerine | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
-| W h i S S p e R | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
+| ZASLON 1 - CAPT Cathy &quot;Whisper&quot; | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Staeni92 Youtube | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
 | Shockwave819 | [76561199144506855](https://steamcommunity.com/profiles/76561199144506855) |  |  |
