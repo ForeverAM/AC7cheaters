@@ -12,7 +12,7 @@
 | Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
 | X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
-|  | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
+| DAGGER-II | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Shiro26 | [76561198443498421](https://steamcommunity.com/profiles/76561198443498421) |  |  |
@@ -120,7 +120,7 @@
 | Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
-| 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
+| 小鞠知花 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
 | seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
 | 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
