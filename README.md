@@ -9,6 +9,7 @@
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira | Vile |
 | Johnny 22 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) |  |  |
 | Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
 | X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
