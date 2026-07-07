@@ -156,7 +156,7 @@
 | nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
-| ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
+|  | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
 | Nicest of Nice Nature Simps | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
 | Unknown_1500 | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) | awayancedricedward |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
@@ -196,7 +196,7 @@
 | ProxyNot | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Luz Roja | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
-| Fikry | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
+| 𝙄𝙯𝙯𝙁𝙮ᴘɪxʏ | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) | Mej.Fikri&#32;Iskandar |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Vile |
