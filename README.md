@@ -8,6 +8,7 @@
 | Monariza | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  | Vile |
+| MISTER X | [76561198977440650](https://steamcommunity.com/profiles/76561198977440650) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira | Vile |
 | Johnny 22 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Doc | [76561198059108641](https://steamcommunity.com/profiles/76561198059108641) |  |  |
@@ -23,7 +24,7 @@
 | Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Katerine | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
-| ZASLON 1 - CAPT Cathy &quot;Whisper&quot; | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
+| Cathy :D | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
 | Staeni92 Youtube | [76561198711292002](https://steamcommunity.com/profiles/76561198711292002) | Staeni92 | Vile,&#32;Frequent&#32;name&#32;changes |
 | Trigger | [76561199111183634](https://steamcommunity.com/profiles/76561199111183634) |  |  |
 | Shockwave819 | [76561199144506855](https://steamcommunity.com/profiles/76561199144506855) |  |  |
