@@ -8,6 +8,7 @@
 | Monariza | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  | Vile |
+| лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | MISTER X | [76561198977440650](https://steamcommunity.com/profiles/76561198977440650) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira | Vile |
 | Johnny 22 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
@@ -42,7 +43,6 @@
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
-| лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
 | AC8 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
