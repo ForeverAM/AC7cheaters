@@ -6,6 +6,7 @@
 | Staeni92 Youtube | [76561198704815770](https://steamcommunity.com/profiles/76561198704815770) | Staeni92 | Vile |
 | 闇 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | Monariza | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
@@ -41,7 +42,6 @@
 | barakka82 | [76561198365489355](https://steamcommunity.com/profiles/76561198365489355) |  |  |
 | Random4057 | [76561199553781796](https://steamcommunity.com/profiles/76561199553781796) | Random4057 |  |
 | NH_Majestic | [76561199167977245](https://steamcommunity.com/profiles/76561199167977245) |  |  |
-| 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | 久菜合子 | [76561198174880513](https://steamcommunity.com/profiles/76561198174880513) |  | Vile |
 | sotosbouz12 | [76561199291857890](https://steamcommunity.com/profiles/76561199291857890) |  |  |
 | IsBang | [76561199509184927](https://steamcommunity.com/profiles/76561199509184927) |  |  |
@@ -67,7 +67,7 @@
 | vincent797xy | [76561199083059948](https://steamcommunity.com/profiles/76561199083059948) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | 醉倒在柏油路上 | [76561199851198126](https://steamcommunity.com/profiles/76561199851198126) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+| TsokinTau | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 赵小雷 | [76561198903211135](https://steamcommunity.com/profiles/76561198903211135) |  |  |
 | -Plastiras- | [76561198029198408](https://steamcommunity.com/profiles/76561198029198408) |  |  |
 | Möbius | [76561197964315595](https://steamcommunity.com/profiles/76561197964315595) |  |  |
