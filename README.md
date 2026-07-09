@@ -12,7 +12,7 @@
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | MISTER X | [76561198977440650](https://steamcommunity.com/profiles/76561198977440650) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira | Vile |
-| Johnny 22 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| New Update: Go outside the map | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Doc | [76561198059108641](https://steamcommunity.com/profiles/76561198059108641) |  |  |
 | Bladeforge | [76561198445648411](https://steamcommunity.com/profiles/76561198445648411) |  |  |
 | 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
