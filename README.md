@@ -5,14 +5,14 @@
 | ------ | ------ | ------ | ------ |
 | Staeni92 Youtube | [76561198704815770](https://steamcommunity.com/profiles/76561198704815770) | Staeni92 | Vile |
 | 闇闇 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| Shin | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| 真一 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  | Vile |
 | лисичка | [76561199879481214](https://steamcommunity.com/profiles/76561199879481214) |  |  |
 | MISTER X | [76561198977440650](https://steamcommunity.com/profiles/76561198977440650) |  |  |
 | This Nazis-USA is GOING DOWN! | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira | Vile |
-| New Update: Go outside the map | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
+| Johnny Elite dangerous | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Vile |
 | Doc | [76561198059108641](https://steamcommunity.com/profiles/76561198059108641) |  |  |
 | Bladeforge | [76561198445648411](https://steamcommunity.com/profiles/76561198445648411) |  |  |
 | 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
