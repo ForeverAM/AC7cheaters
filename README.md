@@ -6,6 +6,7 @@
 | Staeni92 Youtube | [76561198704815770](https://steamcommunity.com/profiles/76561198704815770) | Staeni92 | Vile |
 | 闇闇 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | 真一 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| JAKE31 | [76561199074107604](https://steamcommunity.com/profiles/76561199074107604) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
 | vicetone | [76561198788423467](https://steamcommunity.com/profiles/76561198788423467) |  | Vile |
@@ -18,7 +19,7 @@
 | 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
-| X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
+|  | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
 | DAGGER-II | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
