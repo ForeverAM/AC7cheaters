@@ -292,12 +292,12 @@
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
-|  | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
+| BoogieWoogie | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
-| ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
+|  | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
 | minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
 | Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
 | Der Kaiser | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
