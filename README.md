@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Staeni92 Youtube | [76561198704815770](https://steamcommunity.com/profiles/76561198704815770) | Staeni92 | Vile |
 | 闇闇 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
-| 真一 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
+| Shin | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Rebely | Vile,&#32;Frequent&#32;name&#32;changes |
 | JAKE31 | [76561199074107604](https://steamcommunity.com/profiles/76561199074107604) |  |  |
 | 强健斗士 | [76561199859952760](https://steamcommunity.com/profiles/76561199859952760) |  |  |
 | Staeni92 Youtube | [76561198712338676](https://steamcommunity.com/profiles/76561198712338676) | Staeni92 | Vile |
