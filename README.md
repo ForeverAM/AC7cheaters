@@ -55,7 +55,7 @@
 | Jester | [76561198759179298](https://steamcommunity.com/profiles/76561198759179298) |  |  |
 | 小高 | [76561199349547541](https://steamcommunity.com/profiles/76561199349547541) |  |  |
 | Pure Malevolence | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
-| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
+|  | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | Adler.exe | [76561199471836658](https://steamcommunity.com/profiles/76561199471836658) |  |  |
 | racechamp191 | [76561198401992912](https://steamcommunity.com/profiles/76561198401992912) |  |  |
@@ -367,7 +367,7 @@
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
 | Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
 | Kaelthos | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
