@@ -19,7 +19,7 @@
 | Doc | [76561198059108641](https://steamcommunity.com/profiles/76561198059108641) |  |  |
 | Bladeforge | [76561198445648411](https://steamcommunity.com/profiles/76561198445648411) |  |  |
 | 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
-| Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
+|  | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
 | X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
 | DAGGER-II | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
