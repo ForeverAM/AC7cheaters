@@ -19,7 +19,7 @@
 | Doc | [76561198059108641](https://steamcommunity.com/profiles/76561198059108641) |  |  |
 | Bladeforge | [76561198445648411](https://steamcommunity.com/profiles/76561198445648411) |  |  |
 | 不要修改你的武器命中范围OR我锁血打你 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
-|  | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
+| Gryphus 16 | [76561198841534107](https://steamcommunity.com/profiles/76561198841534107) |  |  |
 | DancingDolly | [76561198219487019](https://steamcommunity.com/profiles/76561198219487019) |  |  |
 | X69ChevyC10 | [76561198976289136](https://steamcommunity.com/profiles/76561198976289136) |  |  |
 | DAGGER-II | [76561198695252007](https://steamcommunity.com/profiles/76561198695252007) |  |  |
@@ -81,7 +81,7 @@
 | MarkMach | [76561198762267846](https://steamcommunity.com/profiles/76561198762267846) | Johnny | Vile |
 | Gojifan679 | [76561199655709830](https://steamcommunity.com/profiles/76561199655709830) |  |  |
 | 9M123Chrysanthem | [76561198986749716](https://steamcommunity.com/profiles/76561198986749716) |  |  |
-| xieyuhengbrian | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
+|  | [76561199622530717](https://steamcommunity.com/profiles/76561199622530717) |  |  |
 | P8HT10 | [76561198832997882](https://steamcommunity.com/profiles/76561198832997882) |  |  |
 | maslef_ | [76561199540913469](https://steamcommunity.com/profiles/76561199540913469) |  |  |
 | 老绅士 | [76561198974647407](https://steamcommunity.com/profiles/76561198974647407) |  |  |
