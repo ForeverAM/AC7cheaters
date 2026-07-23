@@ -26,7 +26,7 @@
 | Sekiro | [76561199066073918](https://steamcommunity.com/profiles/76561199066073918) |  |  |
 | king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
 | Shiro26 | [76561198443498421](https://steamcommunity.com/profiles/76561198443498421) |  |  |
-|  | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
+| Rex | [76561198242727520](https://steamcommunity.com/profiles/76561198242727520) |  |  |
 | Katerine | [76561199222357753](https://steamcommunity.com/profiles/76561199222357753) |  |  |
 | Endless | [76561198198466715](https://steamcommunity.com/profiles/76561198198466715) |  |  |
 | ꧁Cathy꧂ | [76561198434214240](https://steamcommunity.com/profiles/76561198434214240) | Cathya |  |
